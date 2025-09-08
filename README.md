@@ -1,4 +1,4 @@
-# Lans_Clove# 💫 About Me:
+# LansClove 💫 About Me:
 • 🏫 Student at SMK TRISIMA<br>• 🌱 I’m currently learning<br>• 💬 Ask me about<br>• ⚡ Fun fact I was  15 Young Old And Im A Content Creator On Tiktok
 
 
